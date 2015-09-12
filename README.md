@@ -7,7 +7,7 @@ the side. My rates are on a per-project basis. Expect to spend between three to
 six hundred dollars Canadian. Contact me at oparin.aat@gmail.com for business
 inquiries.
 
-Illustriations in Deviant Art
+Illustrations in Deviant Art
 These are drawings and 3d scenes of people, animals and landscapes.
 http://oparin.deviantart.com/
 
