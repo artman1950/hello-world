@@ -4,7 +4,7 @@ performance art. This web page is a new project and will evolve. For now, it
 will include links to my work on other websites. Currently, I'm working as a
 prepress operator in a local business and I'm keen on taking design projects on
 the side. My rates are on a per-project basis. Expect to spend between three to
-six hundred dollars. Contact me at oparin.aat@gmail.com for business
+six hundred dollars Canadian. Contact me at oparin.aat@gmail.com for business
 inquiries.
 
 Illustriations in Deviant Art
